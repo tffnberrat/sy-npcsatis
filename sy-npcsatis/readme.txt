@@ -1,0 +1,1 @@
+Destek & İstek İçin Discord Adresimiz ; https://discord.gg/vB26jP5YSx
